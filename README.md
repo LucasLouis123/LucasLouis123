@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @WifiExploiter on discord and telegram
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning go
+- 📫 How to reach me on discord or telegram
+- 😄 Pronouns: He/Him
